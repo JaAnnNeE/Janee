@@ -1,2 +1,2 @@
 # Janee
-That is so funny! 🇹🇭:
+That is so funny! 🇹🇭
